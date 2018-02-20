@@ -1,3 +1,4 @@
 Beatriz Segall
-Fernanda Montenegro
+Giovanna Antonelli
 Fúlvio Stefanini
+Paulo Betti
