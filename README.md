@@ -1,1 +1,3 @@
-# Aula2.1
+Beatriz Segall
+Fernanda Montenegro
+Fúlvio Stefanini
